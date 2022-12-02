@@ -1,1 +1,1 @@
-# Canadian-Securities-course---Virtual-Portfolio
+# Canadian Securities course - Virtual Portfolio
